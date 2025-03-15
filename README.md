@@ -7,7 +7,7 @@ himo na portfolio kag pangita kwarta lente
 
 do it
  hhhmmm march 3
- sigh
+ sighee
 <!-- I will start today freelancing and VA help me
 
 help me help me helpppp
