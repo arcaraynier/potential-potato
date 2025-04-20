@@ -3,7 +3,7 @@ A project
 
 Go start you're not late yet.
 
-himo na portfolio kag pangita kwarta lentee
+himo na portfolio kag pangita kwarta lentees
 
 do it
  hhhmmm march 3 eeends
