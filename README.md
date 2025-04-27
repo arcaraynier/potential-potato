@@ -1,7 +1,7 @@
 # potential-potato
 A project
 
-Go start you're not late yet.s
+Go start you're not late yet.s.
 
 himo na portfolio kag pangita kwarta lentees
 
