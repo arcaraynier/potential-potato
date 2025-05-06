@@ -5,7 +5,7 @@ Go start you're not late yet.s...
 
 himo na portfolio kag pangita kwarta lentees....
 ...,.,
-do it..
+do it...,.
  hhhmmm march 3 eeendss
  sighees
 <!-- I will start today freelancing and VA help meqq
