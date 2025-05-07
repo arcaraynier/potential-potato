@@ -4,11 +4,11 @@ A project
 Go start you're not late yet.s.....
 
 himo na portfolio kag pangita kwarta lentees......
-...,.,.,.
+...,.,.,...
 do it...,.
  hhhmmm march 3 eeendss
  sighees
-<!-- I will start today freelancing and VA help meqq
+<!-- I will start today freelancing and VA help meqq..
 
 help me help me helpppp..
 
