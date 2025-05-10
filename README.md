@@ -7,7 +7,7 @@ himo na portfolio kag pangita kwarta lentees......
 ...,.,.,.....
 do it...,.
  hhhmmm march 3 eeendss..
- sighees
+ sighees..
  <br>
  <br>..
 
